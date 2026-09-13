@@ -1,7 +1,7 @@
 # 11september2026
 Catatan Tentang Kami
 
-Kunjungi halaman dan baca: https://ilhamnuragustian.github.io/home/11september2026
+Kunjungi halaman dan baca: https://ilhamnuragustian.github.io/11september2026
 
 Halo, siapa pun kamu yang sedang membuka ini.
 
